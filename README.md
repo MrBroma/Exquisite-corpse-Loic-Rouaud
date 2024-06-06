@@ -2,6 +2,8 @@
 
 ## Chapter 1: The Awakening
 
+That's a story of a cutie cat. It's Broma ! Broma love fish !
+
 One upon a time,
 In a distant land,
 Some dude was lost,
